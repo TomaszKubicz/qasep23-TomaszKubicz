@@ -1,1 +1,0 @@
-# qasep23-TomaszKubicz
